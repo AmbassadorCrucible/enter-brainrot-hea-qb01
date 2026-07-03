@@ -1,4 +1,4 @@
-
+Experience enter brainrot heads like never before with enter brainrot heads Scripts rare, the #1 Script. Includes auto-sell and auto-collect for
 
 
 
